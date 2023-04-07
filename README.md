@@ -1,1 +1,1 @@
-# yesner
+Me caracterizo por ser una persona dinámica, emprendedora, recursiva y creativa cuento con la capacidad de promover y desarrollar destrezas en favor del aprendizaje; En el ámbito laboral mantengo adecuadas relaciones interpersonales, se me facilita el trabajo en equipo y poseo habilidad para generar soluciones creativas e innovadoras, alto sentido de responsabilidad y compromiso.
